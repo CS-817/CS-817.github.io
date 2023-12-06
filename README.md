@@ -29,3 +29,14 @@ Instagram: optimushwang
 ![hwang](https://phinf.wevpstatic.net/MjAyMzExMThfMjUy/MDAxNzAwMzE0ODY3NzM4.HVZ13ACPxtl02fkTCUSTs7yQgdJLn3XmJvMZtLPUc34g.P1WDz_80uUS8hBEAPsm4mxVYWkJSo5NQqULHZUM7-LEg.JPEG/image.jpg?type=e1920)
 
 ---
+
+DRAMAS
+
+|Year| Title | Role |
+|--------|--------|---------|
+|2023 | MLL | Kim Do Ha |
+| 2022| AOS S2| Seo Yul| 
+| 2022 | AOS |Seo Yul|
+| 2020 | lIVE ON|Go Eun Taek | 
+
+
