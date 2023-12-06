@@ -37,6 +37,6 @@ DRAMAS
 |2023 | MLL | Kim Do Ha |
 | 2022| AOS S2| Seo Yul| 
 | 2022 | AOS |Seo Yul|
-| 2020 | lIVE ON|Go Eun Taek | 
+| 2020 | LIVE ON|Go Eun Taek | 
 
 
